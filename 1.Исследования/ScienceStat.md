@@ -1,4 +1,4 @@
-## 1. Running head: RSVP IN READING
+## 1.RSVP IN READING
 
 [Rapid_serial_visual_presentation_in_reading_The_case_of_Spritz.pdf](https://github.com/user-attachments/files/28090111/Rapid_serial_visual_presentation_in_reading_The_case_of_Spritz.pdf)
 
